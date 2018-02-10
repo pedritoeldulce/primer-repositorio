@@ -1,3 +1,7 @@
+## CArateristica de Noa
+Peso: 4,800
+Talla:52 cm
+
 ## noa
 
 ## Descripcion de Noa Canoa
