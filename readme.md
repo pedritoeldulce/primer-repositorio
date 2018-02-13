@@ -12,3 +12,6 @@ NOa vive en La Victoria
 
 ## Dia 2 de NOA 
 NOa se acaba de despertar, y le estan poniendo su nuevo vestido
+
+## Noa hizo popo
+Le estan cambiando de pañal a Noa
